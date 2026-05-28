@@ -1,0 +1,2 @@
+# Jeranny_Minaya_Electiva_2026_C2
+Diseño para Mecatrónicos
